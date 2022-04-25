@@ -15,3 +15,6 @@ Results:
 #goodNight
 
 Day - 2.
+
+- Task: Analyzing mock test, and "Sat Practise 1"
+
