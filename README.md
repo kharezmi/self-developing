@@ -1,4 +1,4 @@
-Day - 1
+Day - 1🔥.
 - Task: Improve English Section.
 - Watched lessons(Reading & Writing)
 on YouTube.
@@ -14,7 +14,8 @@ Results:
 
 #goodNight
 
-Day - 2.
+Day - 2.🔥
 
-- Task: Analyzing mock test, and "Sat Practise 1"
+- Today's Task: Analyzing mock test, and "Sat Practise 1"
 
+- After 3 hours of sleeping i went to IELTS course.
