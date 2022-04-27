@@ -18,6 +18,8 @@ Day - 2.🔥
 
 - After 3 hours of sleeping i went to IELTS course.
 - Did not do anything for SAT. :( bcz electiricity turned off.
-Day - 3.
+
+
+Day - 3.🔥
 
 - Today's Task: Analyzing mock test, and "Sat Practise 1"
