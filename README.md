@@ -14,7 +14,7 @@ Results:
 
 #goodNight
 
-- - - - There was a significant break on my studying SAT; - - - -
+- - - - There was a significant break on my studying SAT - - - -
 
 Day - 56.🔥
 - Task: Mock on Khan Academy and practise as well.
