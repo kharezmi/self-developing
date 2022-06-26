@@ -14,16 +14,22 @@ Results:
 
 #goodNight
 
-Day - 2.🔥
+- - - - There was a significant break on my studying SAT; - - - -
 
-- After 3 hours of sleeping i went to IELTS course.
-- Did not do anything for SAT. :( bcz electiricity turned off.
-
-
-Day - 3.🔥
-
-- Today's Task: Analyzing mock test, and "Sat Practise 1"
-
-Day - 4.🔥
-
-- Practising Writing and Language on Khan Academy.
+Day - 56.🔥
+- Task: Mock on Khan Academy and practise as well.
+Mock results:
+  - Score: 1230;
+  - EBRW: 480, Math: 750;
+  - Reading 52/20;
+  - Writing: 44/24;
+  - Math no calc: 20/18;
+  - Math Calc: 38/34;
+ Overall studied 5-6 hours;
+ 
+ Day - 57.🔥
+ - Task: Doing SAT practise test 2.
+ - Writing and math sessions were done;
+ - Writing: 44/28;
+ - Math: 58/51;
+  Overall studied 5-6 hours;
