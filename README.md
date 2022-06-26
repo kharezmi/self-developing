@@ -18,7 +18,7 @@ Results:
 
 Day - 56.🔥
 - Task: Mock on Khan Academy and practise as well.
-Mock results:
+- Mock results:
   - Score: 1230;
   - EBRW: 480, Math: 750;
   - Reading 52/20;
